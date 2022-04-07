@@ -1,4 +1,4 @@
-### Hi there 👋
+### JUST DO IT.
 
 <!--
 **nrf53/nrf53** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
